@@ -1,0 +1,1 @@
+# Opinia-o-frimach-i-korporacjach-nic-nie-ma-na-rynku-wartych-pieniedzy.-
